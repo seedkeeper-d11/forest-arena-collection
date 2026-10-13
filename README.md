@@ -47,4 +47,18 @@ The Office believes the vault holds two things: a shape and a name. The shape is
 
 ## WHAT THE OFFICE CAME TO SUSPECT
 
-- **I. About the pairs.** The readings were recorded in related pairs, and
+- **I. About the pairs.** The readings were recorded in related pairs, and the Office has begun to suspect that the relationships between them are more revealing than the readings themselves.
+
+- **II. About design.** Conservation scans are meant to be dull. These are not. Something in them was put there by hand, not in any one reading, but in the way some of the readings stand to one another. Most ways of setting them side by side show nothing.
+
+- **III. About time.** The scans were taken over ten years, by hands that changed. Taken as a single pile they are a haze. The Office suspects the years should not be allowed to blur together.
+
+- **IV. About meaning.** When the shape is finally seen, it will be something every registrar keeps in a drawer. Do not mistake it for decoration; it is a direction. Ask what it is for, and who in the world outside the Museum still uses it to keep things where others can find them.
+
+- **V. About the signature.** The Conservation Office never signed its work in one place. The Office suspects it signed across the years, a little at a time, and that no single year says the whole name.
+
+- **VI. About favourites.** Every year holds hundreds of scans, and every year seems to have a favourite. It is not the first filed, nor the last, nor the most obvious. The Office never agreed how a favourite is chosen, only that the scans themselves, not the filing clerk, chose it.
+
+- **VII. About labels.** A barcode is meant to be meaningless. The Office has come to believe its barcodes were not as meaningless as they look, and that it has never quite finished reading a single one.
+
+- **VIII. About the name.** Whatever the years say when they finally speak, it will not look out of place on a registrar's desk.
